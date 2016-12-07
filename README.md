@@ -1,1 +1,1 @@
-English Assignment: Hamlet Creative Project (Blog)
+English Assignment: Hamlet Creative Project (News Article)
